@@ -6,7 +6,7 @@ Reference : https://9animetv.to
 ---Fighting Spirit : Hajime no Ippo---
 
 
-<img src="![Volume_1](https://github.com/user-attachments/assets/dfc82243-3860-46ba-9e61-f4a771df9465)" alt="ippo" width="300"/>
+![Volume_1](https://github.com/user-attachments/assets/dfc82243-3860-46ba-9e61-f4a771df9465)
 
 
 * S1 : https://9animetv.to/watch/fighting-spirit-34?ep=971
