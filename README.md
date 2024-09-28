@@ -65,9 +65,13 @@ Reference : https://9animetv.to
 * Initial D : Legend - Racer : https://9animetv.to/watch/initial-d-legend-2-racer-826?ep=50518
 * Initial D : Legend - Mugen : https://9animetv.to/watch/new-initial-d-movie-legend-3-mugen-749?ep=50519
 ----------------------------------------------------------------------------------------------------
+---The Fable---
 
+![басня](https://github.com/user-attachments/assets/af671f77-ff07-42bd-8b0b-a293319be1f8)
 
-  
+The Fable : https://9animetv.to/watch/the-fable-19120?ep=123229
+
+----------------------------------------------------------------------------------------------------  
 
 
 
