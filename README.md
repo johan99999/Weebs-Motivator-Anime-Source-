@@ -69,15 +69,15 @@ Reference : https://9animetv.to
 
 ![sato](https://github.com/user-attachments/assets/b2321318-79c3-4b22-b4d0-ffea568f7ded)
 
-The Fable : https://9animetv.to/watch/the-fable-19120?ep=123229
+* The Fable : https://9animetv.to/watch/the-fable-19120?ep=123229
 
 ----------------------------------------------------------------------------------------------------  
 ---Dororo---
 
 ![hyakkimaru](https://github.com/user-attachments/assets/3854e2f4-c98c-4dad-9175-4ffe97b99ef3)
 
-Dororo and Hyakkimaru : https://9animetv.to/watch/dororo-and-hyakkimaru-2998
-Dororo : https://9animetv.to/watch/dororo-324?ep=7206
+* Dororo and Hyakkimaru : https://9animetv.to/watch/dororo-and-hyakkimaru-2998
+* Dororo : https://9animetv.to/watch/dororo-324?ep=7206
 
 ----------------------------------------------------------------------------------------------------  
 
