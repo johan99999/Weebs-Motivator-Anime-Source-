@@ -5,7 +5,7 @@ Reference : https://9animetv.to
 ----------------------------------------------------------------------------------------------------
 ---Fighting Spirit : Hajime no Ippo---
 
-![Volume_1](https://github.com/user-attachments/assets/dfc82243-3860-46ba-9e61-f4a771df9465)
+![ippo](https://github.com/user-attachments/assets/1a406b35-f236-482b-abf9-fc4a94be634b)
 
 * S1 : https://9animetv.to/watch/fighting-spirit-34?ep=971
 * S2 : https://9animetv.to/watch/fighting-spirit-new-challenger-46?ep=54247
@@ -15,14 +15,14 @@ Reference : https://9animetv.to
 ----------------------------------------------------------------------------------------------------
 ---Vinland Saga---
 
-![vinland](https://github.com/user-attachments/assets/3d1c4b6b-f44c-4c51-aa9d-f95c2d231dd3)
+![thorfinn](https://github.com/user-attachments/assets/c51a08c3-c3ce-43cf-85b9-a615b914beb8)
 
 * S1 : https://9animetv.to/watch/vinland-saga-40?ep=1134
 * S2 : https://9animetv.to/watch/vinland-saga-2nd-season-18239?ep=97120
 ----------------------------------------------------------------------------------------------------
 ---Berserk---
 
-![berserk](https://github.com/user-attachments/assets/36f07495-b854-463c-b9cd-1d905b018466)
+![guts](https://github.com/user-attachments/assets/d72f2e2a-1853-4557-b26f-f1ab166391be)
 
 * Berserk (1997) : https://9animetv.to/watch/berserk-1997-103?ep=3123
 * Berserk (2016) : https://9animetv.to/watch/berserk-2016-5978?ep=43037
@@ -33,13 +33,13 @@ Reference : https://9animetv.to
 ----------------------------------------------------------------------------------------------------
 ---Monster---
 
-![Naoki Urasawa's Monster](https://github.com/user-attachments/assets/74fb45db-673e-4bb4-b7f4-2ecfdea61923)
+![tenma](https://github.com/user-attachments/assets/797290b5-470d-4122-ac0b-f2a31575b7cb)
 
 * Monster : https://9animetv.to/watch/monster-37?ep=1046
 ----------------------------------------------------------------------------------------------------
 ---Ashita No Joe (Tomorrow's Joe/ Rocky Joe)---
 
-![Tetsuya Chiba](https://github.com/user-attachments/assets/ac8a3c80-9f0f-4ce9-829c-d34e0102708e)
+![joe](https://github.com/user-attachments/assets/85ed024d-9779-4930-807c-3aa3e5074591)
 
 * S1 : https://9animetv.to/watch/tomorrows-joe-233?ep=66962
 * S2 : https://9animetv.to/watch/rocky-joe-2-52?ep=1318
@@ -49,7 +49,7 @@ Reference : https://9animetv.to
 ----------------------------------------------------------------------------------------------------
 ---Initial D---
 
-![41e97577-3706-408c-907e-22816ccbb351](https://github.com/user-attachments/assets/5448e6e7-1372-439f-afea-637bf653b652)
+![takumi](https://github.com/user-attachments/assets/cd06c826-255b-481b-b599-ffca1ff4d02c)
 
 * First Stage : https://9animetv.to/watch/initial-d-first-stage-236?ep=5036
 * Second Stage : https://9animetv.to/watch/initial-d-second-stage-376?ep=8708
@@ -67,9 +67,17 @@ Reference : https://9animetv.to
 ----------------------------------------------------------------------------------------------------
 ---The Fable---
 
-![басня](https://github.com/user-attachments/assets/af671f77-ff07-42bd-8b0b-a293319be1f8)
+![sato](https://github.com/user-attachments/assets/b2321318-79c3-4b22-b4d0-ffea568f7ded)
 
 The Fable : https://9animetv.to/watch/the-fable-19120?ep=123229
+
+----------------------------------------------------------------------------------------------------  
+---Dororo---
+
+![hyakkimaru](https://github.com/user-attachments/assets/3854e2f4-c98c-4dad-9175-4ffe97b99ef3)
+
+Dororo and Hyakkimaru : https://9animetv.to/watch/dororo-and-hyakkimaru-2998
+Dororo : https://9animetv.to/watch/dororo-324?ep=7206
 
 ----------------------------------------------------------------------------------------------------  
 
