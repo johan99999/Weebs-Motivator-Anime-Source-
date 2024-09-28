@@ -1,3 +1,5 @@
+![weebs_motivator](https://github.com/user-attachments/assets/c7197496-8ac9-466c-b18a-853a4d4bc327)
+
 # Anime Source
 Source of Anime
 Reference : https://9animetv.to
