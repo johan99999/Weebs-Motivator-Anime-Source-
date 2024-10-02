@@ -96,6 +96,17 @@ Reference : https://9animetv.to
 * Dungeon Meshi : https://9animetv.to/watch/delicious-in-dungeon-18506?ep=114676
 
 ----------------------------------------------------------------------------------------------------
+---Kingdom---
+
+![kingdom](https://github.com/user-attachments/assets/a29a9c00-cf92-4a3b-8a63-103bf41078fb)
+
+* S1 : https://9animetv.to/watch/kingdom-448?ep=9605
+* S2 : https://9animetv.to/watch/kingdom-season-2-142?ep=3957
+* S3 : https://9animetv.to/watch/kingdom-3rd-season-135?ep=3883
+* S4 : https://9animetv.to/watch/kingdom-4th-season-17986?ep=89516
+* S5 : https://9animetv.to/watch/kingdom-season-5-18814
+
+----------------------------------------------------------------------------------------------------
 
 
 
