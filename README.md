@@ -81,7 +81,24 @@ Reference : https://9animetv.to
 * Dororo and Hyakkimaru : https://9animetv.to/watch/dororo-and-hyakkimaru-2998
 * Dororo : https://9animetv.to/watch/dororo-324?ep=7206
 
-----------------------------------------------------------------------------------------------------  
+----------------------------------------------------------------------------------------------------
+---Barakamon---
+
+![barakamon](https://github.com/user-attachments/assets/39b7949d-da5b-422d-bd3b-31d4e29b4494)
+
+* Barakamon : https://9animetv.to/watch/barakamon-130?ep=3822
+
+----------------------------------------------------------------------------------------------------
+---Dungeon Meshi---
+
+![dungeon_meshi](https://github.com/user-attachments/assets/899a7f70-0778-4f8b-9840-d02158da0660)
+
+* Dungeon Meshi : https://9animetv.to/watch/delicious-in-dungeon-18506?ep=114676
+
+----------------------------------------------------------------------------------------------------
+
+
+
 
 
 
