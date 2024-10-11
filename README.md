@@ -32,6 +32,7 @@ Reference : https://9animetv.to
 * Berserk : The Golden Age Arc I - The Egg of The King : https://9animetv.to/watch/berserk-the-golden-age-arc-i-the-egg-of-the-king-857?ep=72002
 * Berserk : The Golden Age Arc II - The Battle for Doldrey : https://9animetv.to/watch/berserk-the-golden-age-arc-ii-the-battle-for-doldrey-616?ep=72003
 * Berserk : The Golden Age Arc III - The Advent : https://9animetv.to/watch/berserk-the-golden-age-arc-iii-the-advent-287?ep=72004
+* Berserk : The Golden Age Arc : Memorial Edition : https://9animetv.to/watch/berserk-the-golden-age-arc-memorial-edition-18206?ep=94364
 ----------------------------------------------------------------------------------------------------
 ---Monster---
 
